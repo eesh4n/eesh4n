@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hey, I'm Eeshan 👋 — incoming Engineering + Ivey Business student at Western. I'm into fintech, investing, and turning ideas into real products. 
+Hey, I'm Eeshan 👋 an incoming Engineering + Ivey Business student at Western. I'm into fintech, investing, and turning ideas into real products. 
 
 
 ## 🌐 Socials:
